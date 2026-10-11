@@ -218,7 +218,7 @@ Get authentic, factory-tested boards shipped directly from Porto, Portugal:
 👉 **[Official Achiraware Store — Buy ACH-RP2350A-PICO-16MB](https://achiraware.com/product/ach-rp2350a-pico-16mb/)**
 
 - **Worldwide & Fast EU Shipping:** Shipped via registered mail / courier across Europe and globally.
-- **Support & Inquiries:** [info@achiraware.com](mailto:info@achiraware.com) | [achiraware.com](https://achiraware.com)
+- **Support & Inquiries:** [customerservice@achiraware.com](mailto:customerservice@achiraware.com) | [achiraware.com](https://achiraware.com)
 
 ---
 
